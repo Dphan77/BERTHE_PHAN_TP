@@ -35,7 +35,8 @@ Si tu veux pas qu'il glisse \
 \
 \
 Putain, c'est en me disant "j'ai jamais demandé à t'avoir!\
-"C'est avec ces formules, trop saoulées, enfin faut croireQue mon père a contribué à me lier avec la rue\
+"C'est avec ces formules, trop saoulées, enfin faut croire\
+Que mon père a contribué à me lier avec la rue\
 J'ai eu l'illusion de trouver mieux, j'ai vu\
 Ce qu'un gamin de quatorze ans, avec le décalage de l'âge\
 Peut entrevoir, c'était comme un mirage\
