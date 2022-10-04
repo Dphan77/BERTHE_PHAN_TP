@@ -1,7 +1,8 @@
 # Laisse pas traîner ton fils 
-### NTM
-\
-\
+## NTM
+
+
+### _Kool Shen_
 \
 À l'aube de l'an 2000 pour les jeunes c'est plus le même deal\
 Pour celui qui traîne, comme pour celui qui file\
@@ -26,6 +27,8 @@ J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse\
 Regarde-le, quand il parle, écoute-le!\
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux \
 \
+
+### _Choeur_
 \
 Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
@@ -33,6 +36,8 @@ Qu'il te ramène du vice\
 Laisse pas traîner ton fils\
 Si tu veux pas qu'il glisse \
 \
+\
+### _Joey Starr_
 \
 Putain, c'est en me disant "j'ai jamais demandé à t'avoir!\
 "C'est avec ces formules, trop saoulées, enfin faut croire\
